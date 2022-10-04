@@ -8,4 +8,10 @@ Membros:
 - Cecatto
 - mini longs
 
-é o bonde.
+**Então skate**
+
+**Eu vou fazer um skate que ela não vai skatê**
+
+**Se for skate**
+
+**Eu vou fazer um skate que ela não vai skatê**
