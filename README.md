@@ -3,9 +3,9 @@ Projeto para treinar skills em programação, se divertir com os brothers e cria
 
 Membros:
 - Adriel
-- Vini
-- Dudu
 - Cecatto
+- Dudu
+- Vini
 - mini longs
 
 **Então skate**
