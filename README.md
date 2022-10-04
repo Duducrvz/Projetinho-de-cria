@@ -1,2 +1,2 @@
 # Projetinho-de-cria
-Projeto em C++, para treinar skills nessa linguagem e trabalhar com os brothers
+Projeto para treinar skills em programação, se divertir com os brothers e criar um joguinho bacana.
