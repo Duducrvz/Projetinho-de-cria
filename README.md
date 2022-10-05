@@ -8,10 +8,6 @@ Membros:
 - Vini
 - mini longs
 
-**Então skate**
+Link para anotações/agenda no app/site Notion.so [Projeto de cria](https://oasis-family-ae5.notion.site/b84936200e8e4601ae627460051dff1d?v=027b2b5ef0a94b9081f862dfcf938843)
 
-**Eu vou fazer um skate que ela não vai skatê**
-
-**Se for skate**
-
-**Eu vou fazer um skate que ela não vai skatê**
+![mini long](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSrqdkhRmCe81i0jZJkoUh3KDD-_dZ46sptfw&usqp=CAU)
